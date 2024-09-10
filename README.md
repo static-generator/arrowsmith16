@@ -4,3 +4,7 @@
 - My favourite subjects are: mathematics and science.
 - My goal this term is to be an honor student!
 - My goal this entire school year is to remember all topics taught by the teachers!
+
+---
+
+[Markdown Guide](https://odysseynewsmagazine.net/2021/11/03/review-cookie-run-kingdom-halloween-masquerade-update/.)
