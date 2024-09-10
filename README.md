@@ -7,4 +7,4 @@
 
 ---
 
-[Cookie run kingdom](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2023/01/cookie-run-kingdom-wizard-city.jpg)
+![Cookie run kingdom](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2023/01/cookie-run-kingdom-wizard-city.jpg)
