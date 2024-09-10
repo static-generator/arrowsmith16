@@ -7,4 +7,4 @@
 
 ---
 
-[Markdown Guide](https://odysseynewsmagazine.net/2021/11/03/review-cookie-run-kingdom-halloween-masquerade-update/.)
+[Cookie run kingdom](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2023/01/cookie-run-kingdom-wizard-city.jpg)
