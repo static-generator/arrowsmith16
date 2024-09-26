@@ -1,4 +1,5 @@
 # Arrowsmith
+![Cookie run kingdom](file:///C:/Users/Arrowsmith/Downloads/image_123650291-5.avif)
 - My CN is 16.
 - My moderatior is Ma'am Kimberly Serano or Ma'am Kim.
 - My favourite subjects are: mathematics and science.
@@ -7,5 +8,5 @@
 
 ---
 
-![Cookie run kingdom](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2023/01/cookie-run-kingdom-wizard-city.jpg)
-![moonlight cookie stats](https://www.reddit.com/r/CookieRunKingdoms/comments/11b9coa/anybody_else_already_promote_their_moonlight/)
+
+![moonlight cookie stats](file:///C:/Users/Arrowsmith/Downloads/Cookie-Run-Kingdom-Lily-Cookie.webp)
