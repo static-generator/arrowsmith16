@@ -1,5 +1,8 @@
-# Arrowsmith
-![Cookie run kingdom](file:///C:/Users/Arrowsmith/Downloads/image_123650291-5.avif)
+# 9 - Arrowsmith Ben Hugo Infante
+
+![](https://primagames.com/wp-content/uploads/2024/04/Cookie-Run-Kingdom-Lily-Cookie.jpg?w=1200)
+---
+# info about me:
 - My CN is 16.
 - My moderatior is Ma'am Kimberly Serano or Ma'am Kim.
 - My favourite subjects are: mathematics and science.
@@ -8,5 +11,4 @@
 
 ---
 
-
-![moonlight cookie stats](file:///C:/Users/Arrowsmith/Downloads/Cookie-Run-Kingdom-Lily-Cookie.webp)
+ thank you for viewing! <3
